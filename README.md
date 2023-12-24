@@ -1,3 +1,3 @@
 # author_ber10
-sent invitation letter
 
+go to Korea.
