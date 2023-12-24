@@ -1,3 +1,3 @@
 # author_ber10
 
-go to Korea.
+go to Seoul tomorrow.
