@@ -1,3 +1,3 @@
 # author_ber10
 
-go to Seoul the day after tomorrow 5.
+go to Jeju the day after tomorrow 11.
