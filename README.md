@@ -1,2 +1,1 @@
-back to EDC 
-
+G.T. Guest House
