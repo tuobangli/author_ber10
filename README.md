@@ -1,1 +1,2 @@
-G.T. Guest House
+
+Daora Guesthouse
