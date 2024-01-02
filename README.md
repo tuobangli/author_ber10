@@ -1,3 +1,1 @@
-stay in 
-Daora Guesthouse
- 5
+call China police 
